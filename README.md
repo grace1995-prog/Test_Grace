@@ -7,3 +7,4 @@ AUTOMATION MAMA
 I am getting better
 my name is grace
 i love white
+Blue is my fav
